@@ -1,4 +1,4 @@
-## about mi ..♡ <br /> <sup><sub>lili ∙ isfj ∙ 19</sub></sup> <br/>
+## about mi ..♡ <br /> <sup><sub>lili ∙ isfj ∙ 19</sub></sup> <hr />
 
 <p>
 <img align="right" width="371" height="371" alt="image" src="https://github.com/user-attachments/assets/b0fd28ca-c001-44f9-9d0a-cc74dbe97531" />
@@ -8,7 +8,7 @@
 <p> i dnt have a specific " area " in ponytown TT.. but i do hang out mostly at tha docks <3 </p> 
 <p> i am very shy,, i try not to be tho.. i usually get comfy after a while n talk a lot ehe </p> <br />
 
-## games i play ..♡ 
+games i play ..♡ <hr />
 <p> phasmophobia </p>
 <p> left 4 dead </p>
 <p> overwatch 2</p>
