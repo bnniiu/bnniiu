@@ -25,3 +25,4 @@ it js brings comfort n i usually dnt use it when i meet ppl anyway so ya .. ♡ 
 <p>another frequent question i get asked is "do you ageplay?/"are you a ageplayer?" short answer, no. I do not support
 any type of problematic behavior which includes " age playing " i fnd it very disgusting n nasty.. i do know there is a
 difference between age regression n age playing (age regression is fine) but any act of age playing is not welcomed wit mi .. ♡ </p> <br / >
+![Profile view counter on GitHub](https://komarev.com/ghpvc/?username=bnniiu)
