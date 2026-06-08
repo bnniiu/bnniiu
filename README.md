@@ -6,3 +6,14 @@
 <p> i am 19 .. nd i rllie luv creepy cute things .. mostly cute tho >< </p>
 <p> i dnt have a specific " area " in ponytown TT.. but i do hang out mostly at tha docks <3 </p> 
 <p> i am very shy,, i try not to be tho.. i usually get comfy after a while n talk a lot ehe </p> <br />
+
+## games i play ..♡ 
+<li>
+  <ul>phasmophobia</ul>
+  <ul>left 4 dead</ul>
+  <ul>overwatch 2</ul>
+  <ul>Roblox</ul>
+  <ul>Minecraft (java n bedrock) </ul>
+  <ul>stardew valley</ul>
+  <ul>n many more ehe.. ♡ </ul>
+</li>
