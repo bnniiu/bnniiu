@@ -16,3 +16,4 @@
 <p> minecraft (java n bedrock </p>
 <p> n many more ehe .. ♡  </p>
 </li>
+<img align="left" width="371" height="371" alt="image" src="https://github.com/user-attachments/assets/79fe2c28-9fdd-47e4-86de-3f27dd462062" />
