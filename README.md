@@ -1,5 +1,6 @@
 ## about mi ..♡ 
-<img src"https://imagesyaya.carrd.co/assets/images/image02.png?v=9912d7f8 alt="div1" />
+<img width="660" height="99" alt="image" src="https://github.com/user-attachments/assets/1ad752c0-7cf4-4105-bb93-9db6506b649f" />
+
 lili ♡ lia ♡ bunni <br />
 i am 19 .. nd i rllie luv creepy cute things .. mostly cute tho >< <br/>
 i dnt have a specific " area " in ponytown TT.. but i do hang out mostly at tha docks <3 <br />
