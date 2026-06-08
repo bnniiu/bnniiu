@@ -1,5 +1,5 @@
 ## about mi ..♡ 
-<img width="735" height="552" alt="image" src="https://github.com/user-attachments/assets/2f77e302-1536-45fa-b469-8c15117b5c47" />
+<img width="371" height="371" alt="image" src="https://github.com/user-attachments/assets/b0fd28ca-c001-44f9-9d0a-cc74dbe97531" />
 
 
 
