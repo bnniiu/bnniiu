@@ -8,12 +8,11 @@
 <p> i am very shy,, i try not to be tho.. i usually get comfy after a while n talk a lot ehe </p> <br />
 
 ## games i play ..♡ 
-<li>
-  <ul>phasmophobia</ul>
-  <ul>left 4 dead</ul>
-  <ul>overwatch 2</ul>
-  <ul>Roblox</ul>
-  <ul>Minecraft (java n bedrock) </ul>
-  <ul>stardew valley</ul>
-  <ul>n many more ehe.. ♡ </ul>
+<p> phasmophobia </p>
+<p> left 4 dead </p>
+<p> overwatch 2</p>
+<p> roblox </p>
+<p> dead by daylight</p>
+<p> minecraft (java n bedrock </p>
+<p> n many more ehe .. ♡  </p>
 </li>
