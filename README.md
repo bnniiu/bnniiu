@@ -1,5 +1,6 @@
 ## about mi ..♡ 
-<img width="660" height="99" alt="image" src="https://github.com/user-attachments/assets/1ad752c0-7cf4-4105-bb93-9db6506b649f" />
+<img width="322" height="320" alt="image" src="https://github.com/user-attachments/assets/2ecbd277-0038-4e5f-a3d1-eaa14787149a" />
+
 
 lili ♡ lia ♡ bunni <br />
 i am 19 .. nd i rllie luv creepy cute things .. mostly cute tho >< <br/>
