@@ -1,4 +1,4 @@
-## about mi ..♡ <br /> <sup><sub>lili ∙ isfj ∙ 19</sub></sup> <hr />
+## about mi ..♡ <br /> <sup><sub>lili ∙ isfj </sub></sup> <hr />
 
 <p>
 <img align="right" width="371" height="371" alt="image" src="https://github.com/user-attachments/assets/b0fd28ca-c001-44f9-9d0a-cc74dbe97531" />
