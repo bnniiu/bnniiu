@@ -4,7 +4,7 @@ c
 
 
 <p>
-<img align="right" width="506" height="369" alt="image" src="https://github.com/user-attachments/assets/6b8608a2-8bc7-4138-bae6-c793a02a1d9f" />
+<img align="right" width="506" height="369" alt="image" src="https://github.com/user-attachments/assets/c3c68989-d16b-4ef8-8877-3922fc2caabf" />
 
 
 𓏴 ︵︵︵︵︵ꫂ᭪︵︵︵︵︵ 𓏴
@@ -16,7 +16,8 @@ c
 <p>♡ - sign my atabook .. ! ♡ https://bnniiu.atabook.org/</p> 
   𓏴 ︵︵︵︵︵ꫂ᭪︵︵︵︵︵ 𓏴 <br />
 <br />
-games i play ..♡ <hr />
+games i play ..♡ 
+<hr />
 <p> phasmophobia </p>
 <p> left 4 dead </p>
 <p> overwatch 2</p>
