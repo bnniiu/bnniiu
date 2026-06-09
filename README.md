@@ -1,4 +1,5 @@
-c
+<img width="1500" height="130" alt="image" src="https://github.com/user-attachments/assets/984b3324-827a-481d-ad3c-815e115da587" />
+
 ## about mi ..♡ <br /> <sup><sub>lili ∙ isfj </sub></sup> <hr />
 
 
@@ -15,6 +16,7 @@ c
 <p> i am very shy,, i try not to be tho.. i usually get comfy after a while n talk a lot ehe </p> 
 <p>♡ - sign my atabook .. ! ♡ https://bnniiu.atabook.org/</p> 
   𓏴 ︵︵︵︵︵ꫂ᭪︵︵︵︵︵ 𓏴 <br />
+
 <br />
 games i play ..♡ 
 <hr />
