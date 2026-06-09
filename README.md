@@ -1,10 +1,11 @@
-
+c
 ## about mi ..♡ <br /> <sup><sub>lili ∙ isfj </sub></sup> <hr />
 
 
 
 <p>
-<img align="right" width="588" height="434" alt="image" src="https://github.com/user-attachments/assets/cbbd25de-5f06-45fc-8d2e-84a559f4dcad" />
+<img align="right" width="506" height="369" alt="image" src="https://github.com/user-attachments/assets/6b8608a2-8bc7-4138-bae6-c793a02a1d9f" />
+
 
 𓏴 ︵︵︵︵︵ꫂ᭪︵︵︵︵︵ 𓏴
 
