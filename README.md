@@ -6,8 +6,7 @@
 <img align="right" width="506" height="369" alt="image" src="https://github.com/user-attachments/assets/c3c68989-d16b-4ef8-8877-3922fc2caabf" />
 
 
-𓏴 ︵︵︵︵︵ꫂ᭪︵︵︵︵︵ 𓏴
-
+┣▇▇▇═─
 </p>
 <p> i rllie luv creepy cute nd eerie cute things .. mostly cute tho .. i also rllie luv da pink nurse aesthetic or da sailor lolita japanese fashion .. ♡ >< </p>
 <p> i dnt have a specific " area " in ponytown TT.. but i do hang out mostly at tha docks <3 </p> 
