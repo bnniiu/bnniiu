@@ -1,8 +1,6 @@
 <img width="1500" height="130" alt="image" src="https://github.com/user-attachments/assets/984b3324-827a-481d-ad3c-815e115da587" />
 
-## about mi ..♡ <br /> <sup><sub>lili ∙ isfj </sub></sup> <hr />
-
-
+<h1 align="center">𝒜𝑏𝑜𝑢𝑡 𝐿𝑖𝑙𝑖</h1><br />
 
 <p>
 <img align="right" width="506" height="369" alt="image" src="https://github.com/user-attachments/assets/c3c68989-d16b-4ef8-8877-3922fc2caabf" />
@@ -11,14 +9,14 @@
 𓏴 ︵︵︵︵︵ꫂ᭪︵︵︵︵︵ 𓏴
 
 </p>
-<p>  i rllie luv creepy cute nd eerie cute things .. mostly cute tho .. i also rllie luv da pink nurse aesthetic or da sailor lolita japanese fashion .. ♡ >< </p>
+<p> i rllie luv creepy cute nd eerie cute things .. mostly cute tho .. i also rllie luv da pink nurse aesthetic or da sailor lolita japanese fashion .. ♡ >< </p>
 <p> i dnt have a specific " area " in ponytown TT.. but i do hang out mostly at tha docks <3 </p> 
 <p> i am very shy,, i try not to be tho.. i usually get comfy after a while n talk a lot ehe </p> 
 <p>♡ - sign my atabook .. ! ♡ https://bnniiu.atabook.org/</p> 
   𓏴 ︵︵︵︵︵ꫂ᭪︵︵︵︵︵ 𓏴 <br />
 
 <br />
-games i play ..♡ 
+<h2>𝒢𝑎𝑚𝑒𝑠 𝐼 𝑃𝑙𝑎𝑦 ..♡ </h2>
 <hr />
 <p> phasmophobia </p>
 <p> left 4 dead </p>
