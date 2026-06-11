@@ -1,6 +1,6 @@
 <img width="1500" height="130" alt="image" src="https://github.com/user-attachments/assets/984b3324-827a-481d-ad3c-815e115da587" />
 
-<h1 align="center">𝒜𝑏𝑜𝑢𝑡 𝐿𝑖𝑙𝑖  ( ´ ˘ `⑅ )੭ ♡ https://bnniiu.straw.page/ </h1> 
+<h1 align="center">𝒜𝑏𝑜𝑢𝑡 𝐿𝑖𝑙𝑖  ( ´ ˘ `⑅ )੭ ৴ https://bnniiu.straw.page/ </h1> 
 <p>
 <img align="right" width="506" height="369" alt="image" src="https://github.com/user-attachments/assets/c3c68989-d16b-4ef8-8877-3922fc2caabf" />
 
